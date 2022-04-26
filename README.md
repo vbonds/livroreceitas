@@ -6,5 +6,7 @@ Olá! Bem vindos ao meu livro de receitas :wave:
 
 - Pavê
 
+- Bolo de Cenoura
+
   
 
